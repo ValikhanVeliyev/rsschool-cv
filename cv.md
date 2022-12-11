@@ -1,4 +1,4 @@
-Valikhan Veliyev
+Name: Valikhan Veliyev Discord: ValikVel#7718
 
 phone: +375 29 773 59 30; mail: da_da_valikhan@mail.ru
 
